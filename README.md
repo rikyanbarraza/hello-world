@@ -5,3 +5,6 @@ Making sure it's not up to mischief!
 Over and out
 // Troy
 GGGGGGGrrrreeeeaaat!
+The time for a change has come!
+aka 
+yo mom
